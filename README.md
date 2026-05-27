@@ -17,3 +17,11 @@ https://github.com/user-attachments/assets/0b9e8634-96fe-41ca-87bd-fe3006c397f1
 * 𝖍𝖞𝖕𝖊𝖗-𝖘𝖍𝖆𝖗𝖎𝖓𝖌 𝖞𝖚𝖒𝖊𝖘𝖍𝖎𝖕𝖕𝖊𝖗 (˶˃ ᵕ ˂˶)
 * 𝖞𝖚𝖒𝖊𝖘𝖍𝖎𝖕 𝖓𝖆𝖒𝖊: 𝕮𝖗𝖚𝖒𝖇𝖑𝖎𝖓𝖌𝕶𝖓𝖎𝖌𝖍𝖙 ୭ ᵎᵎ 🧁
 * 𝖙𝖍𝖆𝖙𝖘 𝖆𝖑𝖑 𝖑𝖔𝖛𝖊𝖑𝖎𝖊𝖘 ! ˙ . ꒷ 🍰 . 𖦹˙—
+
+
+<img width="165" height="200" alt="annie-skullgirls" src="https://github.com/user-attachments/assets/8686d859-6462-4a2c-b540-f72387983eb4" />
+
+<img width="399" height="498" alt="tenor" src="https://github.com/user-attachments/assets/601a2bac-4ed8-4e3a-ac45-9daf64eb705d" />
+
+
+
