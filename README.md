@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/0b9e8634-96fe-41ca-87bd-fe3006c397f1
+<img src="https://media1.tenor.com/m/JrosIrT9ufQAAAAC/filia-skullgirls.gif" alt="a cartoon of a girl with a blender on her head"/>
 
 ಄ 𝔓𝔦𝔤𝔰𝔱𝔢𝔯𝔯 ' 𝔰𝔥𝔢/𝔥𝔢𝔯
 
@@ -8,6 +8,7 @@ https://github.com/user-attachments/assets/0b9e8634-96fe-41ca-87bd-fe3006c397f1
 * 𝔡𝔞𝔫𝔡𝔶𝔰 𝔴𝔬𝔯𝔩𝔡 𝔣𝔞𝔫𝔰 𝔦𝔫𝔱! (๑ᵔ⤙ᵔ๑)
 * 𝔣𝔬𝔯𝔰𝔞𝔨𝔢𝔫 𝔣𝔞𝔫𝔰 𝔦𝔴𝔠𝔲𝔣! (๑ᵔ⤙ᵔ๑)
 * 𝔰𝔬𝔩𝔞𝔯𝔟𝔞𝔩𝔩𝔰/𝔠𝔬𝔲𝔫𝔱𝔯𝔶𝔥𝔲𝔪𝔞𝔫𝔰 𝔣𝔞𝔫𝔰 𝔦𝔫𝔱! (๑ᵔ⤙ᵔ๑)
+* 𝔰𝔨𝔲𝔩𝔩𝔤𝔦𝔯𝔩𝔰 𝔣𝔞𝔫𝔰 𝔦𝔫𝔱! (๑ᵔ⤙ᵔ๑)
 * ƒµℓℓყ ∂ɳเ ρ૨σรɦเρρε૨ร/∂α૨ҡรɦเρρε૨ร/ρε∂σร/ƶσσρɦเℓεร/ɳε૮૨σร
 
 <img width="180" height="24" alt="tumblr_e8047433a1d89900e5ddacd941943aab_32c92681_250" src="https://github.com/user-attachments/assets/ef347787-7f57-4adc-b04f-314058ccf8e4" />
@@ -19,9 +20,7 @@ https://github.com/user-attachments/assets/0b9e8634-96fe-41ca-87bd-fe3006c397f1
 * 𝖙𝖍𝖆𝖙𝖘 𝖆𝖑𝖑 𝖑𝖔𝖛𝖊𝖑𝖎𝖊𝖘 ! ˙ . ꒷ 🍰 . 𖦹˙—
 
 
-<img width="165" height="200" alt="annie-skullgirls" src="https://github.com/user-attachments/assets/8686d859-6462-4a2c-b540-f72387983eb4" />
-
-<img width="399" height="498" alt="tenor" src="https://github.com/user-attachments/assets/601a2bac-4ed8-4e3a-ac45-9daf64eb705d" />
 
 
+<img src="https://media1.tenor.com/m/dtW5ieYuyN4AAAAC/skull-girls-filia.gif" alt="a cartoon drawing of a girl holding a sword with a sign that says &#39; a &#39; on it in the background"/>
 
