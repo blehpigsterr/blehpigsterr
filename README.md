@@ -1,4 +1,6 @@
-<img src="https://media1.tenor.com/m/JrosIrT9ufQAAAAC/filia-skullgirls.gif" alt="a cartoon of a girl with a blender on her head"/>
+<img width="160" height="212" alt="pony-town-🍀 - SWITCH-boop-lie-blinking-padded-4x" src="https://github.com/user-attachments/assets/25933b6a-f9f6-4208-ac04-2d70bcaf11f2" /><img width="160" height="212" alt="pony-town-bro samson wake up its time to-boop-lie-blinking-padded-toy269-4x" src="https://github.com/user-attachments/assets/d50ec7ef-60c5-44af-97fa-ace34d99f8ba" />
+
+
 
 ಄ 𝔓𝔦𝔤𝔰𝔱𝔢𝔯𝔯 ' 𝔰𝔥𝔢/𝔥𝔢𝔯 🇵🇭
 
