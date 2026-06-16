@@ -1,6 +1,6 @@
 <img src="https://media1.tenor.com/m/JrosIrT9ufQAAAAC/filia-skullgirls.gif" alt="a cartoon of a girl with a blender on her head"/>
 
-಄ 𝔓𝔦𝔤𝔰𝔱𝔢𝔯𝔯 ' 𝔰𝔥𝔢/𝔥𝔢𝔯
+಄ 𝔓𝔦𝔤𝔰𝔱𝔢𝔯𝔯 ' 𝔰𝔥𝔢/𝔥𝔢𝔯 🇵🇭
 
 * 𝔥𝔞𝔷𝔟𝔦𝔫/𝔥𝔢𝔩𝔩𝔲𝔳𝔞 𝔣𝔞𝔫𝔰 𝔦𝔴𝔢𝔠𝔲𝔣! (๑ᵔ⤙ᵔ๑)
 * 𝔰𝔠𝔬𝔱𝔱 𝔭𝔦𝔩𝔤𝔯𝔦𝔪 𝔣𝔞𝔫𝔰 𝔡𝔫𝔦! (๑ᵔ⤙ᵔ๑)
