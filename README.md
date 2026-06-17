@@ -21,6 +21,8 @@
 * 𝖞𝖚𝖒𝖊𝖘𝖍𝖎𝖕 𝖓𝖆𝖒𝖊: 𝕮𝖗𝖚𝖒𝖇𝖑𝖎𝖓𝖌𝕶𝖓𝖎𝖌𝖍𝖙 ୭ ᵎᵎ 🧁
 * 𝖙𝖍𝖆𝖙𝖘 𝖆𝖑𝖑 𝖑𝖔𝖛𝖊𝖑𝖎𝖊𝖘 ! ˙ . ꒷ 🍰 . 𖦹˙—
 
+PLEASE tell me to draw your yumeship...i love making people happy
+
 
 
 
