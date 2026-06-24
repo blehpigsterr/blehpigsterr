@@ -24,3 +24,5 @@
 [಄ ᴀᴛᴀʙᴏᴏᴋ](https://thelegitfilia.atabook.org/)   .         .         .      .  [಄ ʀᴇᴅᴅɪᴛ](https://www.reddit.com/user/AnxietyFalse8404/)
 
 <img width="200" height="200" alt="2ba047bdd29a8be2671c11c28a8290a4" src="https://github.com/user-attachments/assets/a8eb7fcd-0f1b-44b1-ace6-79a07c5affec" />
+
+extra note: yes i WILL unfollow and block you if i catch you sign a problematic persons ata, sowwy! ^3^
