@@ -27,7 +27,7 @@
 
 
    
-[಄ ᴀᴛᴀʙᴏᴏᴋ](https://thelegitfilia.atabook.org/)   .         .         .      .  [಄ ʀᴇᴅᴅɪᴛ](https://www.reddit.com/user/AnxietyFalse8404/)
+[಄ ᴀᴛᴀʙᴏᴏᴋ](https://therealribbit.atabook.org/)
 
 
 
