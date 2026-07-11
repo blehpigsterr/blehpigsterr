@@ -1,4 +1,5 @@
-<img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/20535728-76c3-401a-a3bc-f9f52790dd6f" />
+<img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/62a58d66-0811-47c5-9c74-7342cc304b0d" />
+
 
 
 
@@ -10,8 +11,9 @@
 
  `಄ ᴘɪɢꜱᴛᴇʀʀ . . 𝄞`
 
- `಄  ⸝⸝ ɪᴍ ʀɪʙʙɪᴛ ɪʀʟ`          
-
+ `಄  ⸝⸝ ɪᴍ ʀɪʙʙɪᴛ ɪʀʟ`
+ 
+`಄  ⸝⸝ #1 ꜱᴘᴀᴄᴇ ʏᴀᴘᴘᴇʀ`
  
  `಄  ⸝⸝ ɴɪᴄᴇꜱᴛ ᴘᴇʀꜱᴏɴ ɪɴ ᴛʜᴇ ᴡᴏʀʟᴅ (ᴛʀᴜꜱᴛ ᴍᴇ)`
 
@@ -22,12 +24,13 @@
  `಄ ⸝⸝ ɪꜰ ɪ ɪɴꜱᴜʟᴛ ʏᴏᴜ ᴅᴏɴᴛ ᴡᴏʀʀʏ ᴛᴡɪɴ ɪᴍ ʙᴇɪɴɢ ꜱᴀʀᴄᴀꜱᴛɪᴄ ɪ ᴡᴜʙ ʏᴏᴜ`
 
 
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/cb2fce05-0fc2-4c4c-b0c5-d3b989bee7a7" />
+<img width="500" height="350" alt="image" src="https://github.com/user-attachments/assets/f73c09b1-317a-4dc2-9964-312182abc688" />
+
 
 
 
    
-[಄ ᴀᴛᴀʙᴏᴏᴋ](https://therealribbit.atabook.org/)
+. . .          [಄ ᴀᴛᴀʙᴏᴏᴋ](https://therealribbit.atabook.org/)        . . .  🌠
 
 
 
