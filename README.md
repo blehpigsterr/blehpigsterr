@@ -24,7 +24,8 @@
  `಄ ⸝⸝ ɪꜰ ɪ ɪɴꜱᴜʟᴛ ʏᴏᴜ ᴅᴏɴᴛ ᴡᴏʀʀʏ ᴛᴡɪɴ ɪᴍ ʙᴇɪɴɢ ꜱᴀʀᴄᴀꜱᴛɪᴄ ɪ ᴡᴜʙ ʏᴏᴜ`
 
 
-<img width="500" height="350" alt="image" src="https://github.com/user-attachments/assets/f73c09b1-317a-4dc2-9964-312182abc688" />
+<img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/f73c09b1-317a-4dc2-9964-312182abc688" /><img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/7755421f-5a21-4e3b-bc06-e98cb49b67a7" />
+
 
 
 
