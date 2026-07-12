@@ -11,10 +11,14 @@
                                                    
                                                    
                                                    ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
-<br>${\textsf{\color{#272e4b}. .Welcome to}}$<br>${\textsf{\color{#724973} Pigsters github . . 🌀}}$
+<br>${\textsf{\color{#272e4b}✶ . .Welcome to Pigsters github...}}$
+
+<br>${\textsf{\color{#475288} ⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒⌒}}$
+
+<br>${\textsf{\color{#724973} ✶ hii guys its pigsterr OuO all my socials are named blehpigsterr because yes, EXCEPT for roblox which is totallynotexodusbal}}$
 
 
- 
+<br>${\textsf{\color{#b299db} pls read my doc if your familiar with @coal-irl and @solstimatic or atleast one of them.}}$
 
 
 
@@ -22,7 +26,7 @@
 
 
 
-
+<br>${\textsf{\color{#e9cbd3} ╭ perseus and taurus was taken on my bday btw! november 22...}}$
 
    
 . . .          [಄ ᴀᴛᴀʙᴏᴏᴋ](https://spacemazingcreatures.atabook.org/)        . . .  🌠
