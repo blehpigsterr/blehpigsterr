@@ -18,8 +18,7 @@
 <br>${\textsf{\color{#724973} ✶ hii guys its pigsterr OuO all my socials are named blehpigsterr because yes, EXCEPT for roblox which is totallynotexodusbal}}$
 
 
-<br>${\textsf{\color{#b299db} pls read my doc if your familiar with @coal-irl and @solstimatic or atleast one of them.}}$
-
+<br>${\textsf{\color{#b299db} pls read my doc if your familiar with @solstimatic}}$
 
 
 <img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/f73c09b1-317a-4dc2-9964-312182abc688" /><img width="500" height="250" alt="image" src="https://github.com/user-attachments/assets/7755421f-5a21-4e3b-bc06-e98cb49b67a7" />
