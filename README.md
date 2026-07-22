@@ -1,1 +1,2 @@
-i dont want to worry my friends any longer, so i'll try my best to come back as the pigster they all know and love.
+<img width="498" height="498" alt="metal-family-dee" src="https://github.com/user-attachments/assets/4faf2769-3e6b-47c6-9c8d-eb8086e66883" />
+
