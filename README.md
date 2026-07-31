@@ -10,6 +10,10 @@ yoo whaddup guys im Dee's super amazing true girlfriend...I lub him ok so like b
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/79cd82be-4a2b-4287-9c42-88167939d21e" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1c6dc36b-8c2c-4ac0-bf7b-314ba63a8cb0" >
 
 
+Pony Towns: Lilly! (daycare story) EEK TYSMM
+
+
+<img width="250" height="250" alt="Lilly_Daycare" src="https://github.com/user-attachments/assets/2b7cd1c8-6fb5-43cd-a96b-1d75c16dcc4a" />
 
 
 
