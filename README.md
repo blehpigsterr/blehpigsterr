@@ -6,8 +6,7 @@ yoo whaddup guys im Dee's super amazing true girlfriend...I lub him ok so like b
 
 
 
-
-<img width="250" height="250" alt="Untitled design" src="https://github.com/user-attachments/assets/a536c5a7-fba3-4db6-bb4f-c9c24baf40de" />
+<img width="250" height="250" alt="DEE" src="https://github.com/user-attachments/assets/e9233811-0945-473d-8885-cd0c31703d2f" />
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/79cd82be-4a2b-4287-9c42-88167939d21e" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1c6dc36b-8c2c-4ac0-bf7b-314ba63a8cb0" >
 
 
