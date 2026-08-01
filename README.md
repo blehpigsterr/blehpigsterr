@@ -1,6 +1,8 @@
-<img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/8ea5a7d0-c959-41dc-9c26-aad65f79431c" />
+<img width="1000" height="350" alt="image" src="https://github.com/user-attachments/assets/5c3dea47-4173-438b-82bc-67bb63bd3ca0" />
 
-                                                      ⚡︎˖ ࣪ 𝗦𝗟𝗜𝗣𝗞𝗡𝗢𝗧 ☠︎︎
+
+
+                                                      ⚡︎˖ ࣪ I WANT TO ROCK ☠︎︎
 
 `𝄞 . ᴘɪɢꜱᴛᴇʀʀ/ꜰʟᴀᴍ`
 
