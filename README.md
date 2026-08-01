@@ -17,10 +17,10 @@
 <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/79cd82be-4a2b-4287-9c42-88167939d21e" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1c6dc36b-8c2c-4ac0-bf7b-314ba63a8cb0" >
 
 
-`✷ ᴘᴏɴʏ ᴛᴏᴡɴꜱ ᴏꜰꜰɪᴄɪᴀʟ ʟɪʟʟʏ ꜰʀᴏᴍ ᴅᴀʏᴄᴀʀᴇ ꜱᴛᴏʀʏ ᴀɴᴅ ᴅᴇᴇ ꜱʜᴠᴀɢᴇɴʙᴀɢᴇɴ ꜰʀᴏᴍ ᴍᴇᴛᴀʟ ꜰᴀᴍɪʟʏ (˶ˆᗜˆ˵) (ᴛʏꜱᴍ 
+`✷ ᴘᴏɴʏ ᴛᴏᴡɴꜱ ᴏꜰꜰɪᴄɪᴀʟ ʟɪʟʟʏ ꜰʀᴏᴍ ᴅᴀʏᴄᴀʀᴇ ꜱᴛᴏʀʏ ᴀɴᴅ ᴅᴇᴇ ꜱʜᴠᴀɢᴇɴʙᴀɢᴇɴ ꜰʀᴏᴍ ᴍᴇᴛᴀʟ ꜰᴀᴍɪʟʏ (˶ˆᗜˆ˵) (ᴛʏꜱᴍ @pt-hall-of-media)`
 
 
-<img width="250" height="250" alt="Lilly_Daycare" src="https://github.com/user-attachments/assets/2b7cd1c8-6fb5-43cd-a96b-1d75c16dcc4a" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/91d8dd7b-2e95-41ef-8d9e-8db7685dce9f" />
+<img width="250" height="250" alt="Lilly_Daycare" src="https://github.com/user-attachments/assets/2b7cd1c8-6fb5-43cd-a96b-1d75c16dcc4a"> ʚɞ────────────────────────────────ʚɞ <img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/91d8dd7b-2e95-41ef-8d9e-8db7685dce9f" />
 
 
 
