@@ -16,7 +16,15 @@
 
 
 <img width="250" height="250" alt="DEE" src="https://github.com/user-attachments/assets/e9233811-0945-473d-8885-cd0c31703d2f" />
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/79cd82be-4a2b-4287-9c42-88167939d21e" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1c6dc36b-8c2c-4ac0-bf7b-314ba63a8cb0" >
+<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/79cd82be-4a2b-4287-9c42-88167939d21e" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/1c6dc36b-8c2c-4ac0-bf7b-314ba63a8cb0">
+
+
+                                                              ♡
+
+<img width="150" height="150" alt="flam" src="https://github.com/user-attachments/assets/6b15d7e5-66e8-4239-a82c-59a04e054469" />
+" 𝒘𝒐𝒏𝒕 𝒚𝒐𝒖 𝒅𝒊𝒆 𝒕𝒐𝒏𝒊𝒈𝒉𝒕 𝒇𝒐𝒓 𝒍𝒐𝒗𝒆 . ? "
+<p align="right"><img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/2ed8ed0f-f01f-4832-b3c2-4e6212735bc8" /> <p align="right">" 𝒃𝒂𝒃𝒚, 𝒋𝒐𝒊𝒏 𝒎𝒆 𝒊𝒏 𝒅𝒆𝒂𝒕𝒉. "
+
 
 .
 
