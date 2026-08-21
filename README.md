@@ -24,4 +24,5 @@ i love you gundham pls dont dissapear wait WAIT NO WAI
 <p align="center">
 <img width="300" height="300" alt="gundham-tanaka-gundham-kinnie" src="https://github.com/user-attachments/assets/54debe15-07e7-45cf-a19c-d8d9e7a4391a" />
 
-
+<p align="center">
+if you are soda or their friend, read my doc
