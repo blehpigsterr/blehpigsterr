@@ -20,11 +20,10 @@
 <p align="center">
 𝐃𝐞𝐞 𝐒𝐡𝐯𝐚𝐠𝐞𝐧𝐛𝐚𝐠𝐞𝐧, 𝐆𝐮𝐧𝐝𝐡𝐚𝐦 𝐓𝐚𝐧𝐚𝐤𝐚, 𝐅𝐮𝐲𝐮𝐡𝐢𝐤𝐨 𝐊𝐮𝐳𝐮𝐫𝐲𝐮, 𝐊𝐢𝐲𝐨𝐭𝐚𝐤𝐚 𝐈𝐬𝐡𝐢𝐦𝐚𝐫𝐮. (𝐡𝐲𝐩𝐞𝐫-𝐬𝐡𝐚𝐫𝐢𝐧𝐠 𝐲𝐮𝐦𝐞)
 
-<p align="center">
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cf7e6418-c849-4ae5-88fa-a8e351e039b8"
-
-
-
 
 <p align="center">
-if you are baku, read my doc
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cf7e6418-c849-4ae5-88fa-a8e351e039b8">
+
+
+
+
