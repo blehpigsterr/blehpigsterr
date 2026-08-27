@@ -1,13 +1,14 @@
 <p align="center">
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 <p align="center">
-<img width="300" height="300" alt="b03f60bdb02acbaeb6f46ec4342a7827" src="https://github.com/user-attachments/assets/c880050c-a1c8-4788-adda-cb68155c5d4a" />
+<img width="300" height="300" alt="haruhi icon ⋆✴︎˚｡⋆" src="https://github.com/user-attachments/assets/627277cb-d5af-42d5-a6d4-e4134b3c5a2f" />
+
 
 
 <p align="center">
 𝐏𝐢𝐠𝐬𝐭𝐞𝐫/𝐅𝐥𝐚𝐦 .
 <p align="center">
-𝐈 𝐥𝐢𝐤𝐞 𝐦𝐜𝐝𝐨𝐧𝐚𝐥𝐝𝐬, 𝐠𝐮𝐧𝐝𝐡𝐚𝐦, 𝐚𝐧𝐝 𝐲𝐞𝐬
+𝐈 𝐥𝐢𝐤𝐞 𝐟𝐨𝐨𝐝, 𝐜𝐫𝐚𝐟𝐭𝐢𝐧𝐠, 𝐝𝐫𝐚𝐰𝐢𝐧𝐠, 𝐝𝐞𝐬𝐢𝐠𝐧𝐢𝐧𝐠, 𝐚𝐧𝐝 𝐦𝐚𝐭𝐡
 
 <p align="center">
 𝐃𝐍𝐈 𝐋𝐈𝐒𝐓
@@ -17,12 +18,13 @@
 <p align="center">
 𝐅/𝐎'𝐒 𝐋𝐈𝐒𝐓
 <p align="center">
-𝐃𝐞𝐞, 𝐅𝐮𝐲𝐮𝐡𝐢𝐤𝐨 𝐊𝐮𝐳𝐮𝐫𝐲𝐮, 𝐆𝐮𝐧𝐝𝐡𝐚𝐦 𝐓𝐚𝐧𝐚𝐤𝐚.
+𝐃𝐞𝐞 𝐒𝐡𝐯𝐚𝐠𝐞𝐧𝐛𝐚𝐠𝐞𝐧, 𝐆𝐮𝐧𝐝𝐡𝐚𝐦 𝐓𝐚𝐧𝐚𝐤𝐚, 𝐅𝐮𝐲𝐮𝐡𝐢𝐤𝐨 𝐊𝐮𝐳𝐮𝐫𝐲𝐮, 𝐊𝐢𝐲𝐨𝐭𝐚𝐤𝐚 𝐈𝐬𝐡𝐢𝐦𝐚𝐫𝐮. (𝐡𝐲𝐩𝐞𝐫-𝐬𝐡𝐚𝐫𝐢𝐧𝐠 𝐲𝐮𝐦𝐞)
 
 <p align="center">
-i love you gundham pls dont dissapear wait WAIT NO WAI
-<p align="center">
-<img width="300" height="300" alt="gundham-tanaka-gundham-kinnie" src="https://github.com/user-attachments/assets/54debe15-07e7-45cf-a19c-d8d9e7a4391a" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cf7e6418-c849-4ae5-88fa-a8e351e039b8"
+
+
+
 
 <p align="center">
 if you are baku, read my doc
