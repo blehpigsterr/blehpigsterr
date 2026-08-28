@@ -11,7 +11,7 @@ Pigster / Flam .
 I love food, drawing, designing, crafting, socializing, and math
 
 <p align="center"> 
-im sometimes shy when i think a friend is too cool or nonchalant to chat/cud with because im like that, but if i get comftorable enough im super cool i promise
+im sometimes shy when i think a friend is too cool or nonchalant to chat/cud with because im like that, but if i get comfortorable enough im super cool i promise
 
 <p align="center">
 basic dni list, but specifically house of puso fans dni
