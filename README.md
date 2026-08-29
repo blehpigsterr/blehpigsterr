@@ -17,10 +17,16 @@ im sometimes shy when i think a friend is too cool or nonchalant to chat/cud wit
 basic dni list, but specifically house of puso fans dni
 
 <p align="center">
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5a4aedda-fb34-4efa-bf13-f9f4fb7c3789" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9df0af27-9da5-4905-9bde-15a7623f583f" /> <img width="99" height="56" alt="tumblr_a9ab5fd16eca10d30bfe982d2a739601_3391bce1_100" src="https://github.com/user-attachments/assets/83e6c980-6c59-4c70-9260-11abfcb698a6" />
-<img width="99" height="56" alt="tumblr_8af1fe9fb854d041191efdbdca1bc54f_174d7ad1_100" src="https://github.com/user-attachments/assets/b4c9b50e-6eed-49f3-a435-1a3557b374d3" />
-<img width="99" height="56" alt="tumblr_0ab4fff7e23b3e240f607c597133f489_d4c3572d_100" src="https://github.com/user-attachments/assets/c1a7d121-bd25-49ec-8d4c-c77e2310e47f" />
-<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/ecb35426-99e6-4fb8-a884-f46267e8fadd" />
+<img width="99" height="56" alt="tumblr_bf2fbe5111dd34e0127f712113da8430_ecd62434_250" src="https://github.com/user-attachments/assets/1ef21800-6b93-4f79-92ef-d030bd7663a1" />
+<img width="99" height="56" alt="tumblr_3d6a7874a93798639af7ee63263fecbd_1875fe33_400" src="https://github.com/user-attachments/assets/58b9ce87-2f94-433d-8cd0-0515d2ddaf0f" />
+<img width="99" height="56" alt="tumblr_83287ce67e8486a79e0b5661aa6e8ff7_25ce48a7_400" src="https://github.com/user-attachments/assets/0f984a5b-3d3b-417a-ad51-d815c7788345" />
+<img width="99" height="56" alt="tumblr_783971b2e45ef5536cdef14336afa6d2_77317e9d_400" src="https://github.com/user-attachments/assets/6261b746-9846-4c49-b8d3-d35b69c5efa8" />
+<img width="99" height="56" alt="tumblr_2194a29118ca71a1164517faa2e34c08_70e97fe5_100" src="https://github.com/user-attachments/assets/15fd01b8-6d94-46c5-8d6a-2f45fed59a1f" />
+<img width="99" height="56" alt="tumblr_189323b505ba1e686035cf6771ae6ebb_264ae80a_100" src="https://github.com/user-attachments/assets/41c09b39-93cc-4771-bc20-c15d78ff8a81" />
+<img width="99" height="56" alt="tumblr_3467f59b5c67da32c58ab86ae6aedec8_6658b07f_100" src="https://github.com/user-attachments/assets/b7686b81-0516-4399-ac58-69134257ad97" />
+<img width="99" height="56" alt="tumblr_9eced0eac594ffd4b442ea6b4da7ae0b_1cd271a3_100" src="https://github.com/user-attachments/assets/dca54332-fc67-466b-8aa3-70b6745e5605" />
+<img width="99" height="56" alt="tumblr_95b09825630b0d40984cc35fa2b01ab1_c9a275eb_100" src="https://github.com/user-attachments/assets/ed9f6c16-b60f-4af3-8e70-2e6d5f49b40d" />
+
 
 
 
