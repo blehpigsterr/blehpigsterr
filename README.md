@@ -11,9 +11,6 @@
 Pigster / Flam . 
 
 
-<p align="center"> 
-i will prob make a straw sooner or later for those who want info , ok
-
 
                                             
  <p align="center"> 
