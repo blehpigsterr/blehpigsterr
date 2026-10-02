@@ -12,4 +12,13 @@ Pigster / Flam .
 
 
 <p align="center"> 
-I love Gundham <333 since feb 2026 ♥︎
+i will prob make a straw sooner or later for those who want info , ok
+
+
+                                            
+ <p align="center"> 
+  <img width="496" height="38" alt="sonia" src="https://github.com/user-attachments/assets/5cd61fca-88bf-4c59-b991-6ab5f47f8f79" />
+</details>
+
+ <p align="center">
+ arigato
