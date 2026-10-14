@@ -1,15 +1,9 @@
 
 <p align="center">
-⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+<a href="https://visitorbadge.io/status?path=blehpigsterr"><img src="https://api.visitorbadge.io/api/daily?path=blehpigsterr&label=People%20Hacked&labelColor=%23ffffff&countColor=%23ffffff&style=plastic&labelStyle=none" /></a>
 
-<p align="center">  
-<img width="300" height="300" alt="tenor" src="https://github.com/user-attachments/assets/f0b93d23-500e-4128-b9c4-d2e02d32bb50" />
+<p align="center">
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/f419d94a-9b29-4239-be3f-f9ebd6673b5d" />
 
-
-
-
-<p align="center">  
-Pigster / Flam . 
-
-<p align="center">  
-roblox myth/urban legend/hacker cosplayer .
+<p align="center">
+poopy fart
