@@ -5,10 +5,8 @@
 <p align="center">
 <img width="450" height="300" alt="ribbit-tadc" src="https://github.com/user-attachments/assets/e5c4bffb-ee13-405c-8527-531d2bea6364" />
 
-
-
-
-
-
 <p align="center">
 pigster/flam
+
+<p align="center">
+if you see me say im eating "cereal", its energen but chocolate flavored (i love yum)
