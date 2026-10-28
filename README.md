@@ -9,4 +9,4 @@
 pigster/flam
 
 <p align="center">
-if you see me say im eating "cereal", its energen but chocolate flavored (i love yum)
+i drink energen everytime i play pony town 
