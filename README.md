@@ -1,9 +1,10 @@
 
 <p align="center">
-<a href="https://visitorbadge.io/status?path=blehpigsterr"><img src="https://api.visitorbadge.io/api/visitors?path=blehpigsterr&label=games%20beaten%20%E0%AB%AE%E2%82%8D%20%C2%B4%20%EA%92%B3%20%60%E2%82%8E%E1%83%90&labelColor=%23234046&countColor=%23e5b3b6&style=flat" /></a>
+<a href="https://visitorbadge.io//status?path=blehpigsterr"><img src="https://api.visitorbadge.io/api/visitors?path=blehpigsterr&label=races%20won%20(%E2%B8%9D%E2%B8%9D%E2%A9%8C%20%E2%A4%99%20%E2%A9%8C%E2%B8%9D%E2%B8%9D)&labelColor=%23f0b354&countColor=%23c2304b&style=flat-square&labelStyle=lower" /></a>
 
 <p align="center">
-<img width="350" height="300" alt="chiaki-nanami-chiaki" src="https://github.com/user-attachments/assets/37dd1231-0a55-45b8-9bce-42f572e869af" />
+<img width="350" height="370" alt="image" src="https://github.com/user-attachments/assets/d2424e3a-4f04-421c-8afc-f09c7d554c50" />
+
 
 
 
@@ -11,4 +12,4 @@
 pigster/flam
 
 <p align="center">
-i eat something every time i play pony town
+el zoxie is canon
