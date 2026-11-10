@@ -14,3 +14,7 @@ pigster/flam
 
 <p align="center">
 el zoxie is canon
+
+
+<p align="center">
+im a MINOR!! expect me to not be online unless weekends or 3:50PM
