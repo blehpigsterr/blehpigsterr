@@ -15,7 +15,7 @@
 pigster/flam
 
 <p align="center">
-fossilcake yummm 
+fossilcake shipper since late 2024 <3 
 
 
 <p align="center">
