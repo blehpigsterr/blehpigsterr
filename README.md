@@ -1,11 +1,13 @@
 
 <p align="center">
-<img width="86" height="20" alt="image" src="https://github.com/user-attachments/assets/ecd27460-b9ef-4ea1-a8e5-de2a16f2e06f" />
+<img width="190" height="20" alt="image" src="https://github.com/user-attachments/assets/979197b1-e179-488e-a6de-6816b3393166" />
+
 
 
 
 <p align="center">
-<img width="498" height="423" alt="fossilcake-cosmo" src="https://github.com/user-attachments/assets/45e7efab-e261-4345-867d-9805775588df" />
+<img width="300" height="300" alt="crumble i guess" src="https://github.com/user-attachments/assets/f5bcf880-2705-4336-ba7a-14013329e6a6" />
+
 
 
 
