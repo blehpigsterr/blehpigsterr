@@ -22,4 +22,4 @@ fossilcake shipper since late 2024 <3
 
 
 <p align="center">
-im a MINOR!! expect me to not be online unless weekends or 3:50PM
+SINABIHAN NA KITANG TUMAKBO PAPALAYO SA MUNDONG— NAKAKAPAGPABAGABAG.
