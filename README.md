@@ -1,6 +1,6 @@
 
 <p align="center">
-<img width="190" height="20" alt="image" src="https://github.com/user-attachments/assets/979197b1-e179-488e-a6de-6816b3393166" />
+<a href="https://visitorbadge.io//status?path=blehpigsterr"><img src="https://api.visitorbadge.io/api/visitors?path=blehpigsterr&label=cookies%20baked%20(%20%E2%80%A2%CC%AF%CC%81%20%E2%82%83%20%E2%80%A2%CC%AF%CC%80)&labelColor=%23491d22&countColor=%239d8f6c&style=flat-square" /></a>
 
 
 
